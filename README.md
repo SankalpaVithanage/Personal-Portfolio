@@ -1,1 +1,1 @@
-https://sankalpavithanage.github.io/Personal-Portfolio/
+https://sankalpavithanage.github.io/Personal-Portfolio
